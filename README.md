@@ -7,7 +7,6 @@
 [Strawpage](https://birdcag.straw.page)
 ㅤ         [AtaBook](https://birdcage.atabook.org/)
 
-######   $\color{#white}{\textsf{@ANAXAGOR4S}}$  $\color{#C10300}{\textsf{♡}}$ 
 <br>
 
 </p> <a href=""><img src="https://i.postimg.cc/Qdg41WWx/54-Sem-Titulo-20260722125749.png" width="500" height="auto" align="center"></img></a> <br>
